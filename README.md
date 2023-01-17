@@ -6,4 +6,4 @@ Repositories on this account are mostly for my writing, as well as the OneShot D
 
 Find me in the following places:
 
-🏢 [Work](https://whistler.page) | 🏚️ [Home](https://starrypoint.me)
+🏢 [Work](https://whistler.page) | 🏚️ [Home](https://starrypoint.me) | 👆 [Self](lapis.self.starrypoint.me)
